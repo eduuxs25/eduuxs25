@@ -1,4 +1,4 @@
-## Hi there 👋
+## Olá 👋
 
 
 - 🔭 Estudando 1º Ano Ensino Médio
